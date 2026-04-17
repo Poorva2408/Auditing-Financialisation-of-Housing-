@@ -18,8 +18,11 @@ Many “rich” nations the The Global North treats housing as a market commodit
 ### Evolution of financialisation : Land as a “Capture Mechanism” to the financial engineering of 2005 
 
 In The Wealth of Nations, Adam Smith defined land as a factor of production alongside Labour and Capital, which began to treat the right to occupy space as a cost of doing business or toll booths that every worker and capitalist  had to pass through. 
+
 David Ricardo added variables of time and growth : He observed that as population increases, people move to cities (less productive land) and because the best land is limited, the owners of that prime land can charge more simply because the alternative is so much worse.
+
 Ricardo proved that as the population grows and the economy improves, the “unearned increment” (the values of location) rises automatically. The house is no longer a “utility” (a place to live); but a “vehicle” to capture the future wealth of the community. 
+
 That equation ran a different trajectory sold by Post WWII narrative that presented homeownership as a “reward”  intended to build  “Property -Owning Democracy” as coined by British Politician Noel Skelton but economically a stabilization tactic that shifted the worker’s status from  a “citizen with a right to shelter” to a “debtor with a duty to pay”. 
 The Keynesian “Public Utility” note was played by the state (building mass housing), but the “Private Asset” (Collateral) note was played by the banks (financing the houses). 
 
