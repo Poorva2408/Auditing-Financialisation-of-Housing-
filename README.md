@@ -25,7 +25,7 @@ Another economist’s  Harrod-Domar Model viewed housing as a drain on growth (1
 ### Tilting the Poor to Mapping for the Rich 
  What started as a plan to empower the residents became a tool for global assetization, the process of turning a physical space into a liquid financial instrument . It involves mapping the informal settlements using GPS and digital registries , making the land legible to international finance. Tiled lands with astronomical “location value” were yield extracted by private equity funds or large developers by buying out the locals for high luxury rises bundled into Real Investment Trusts (REITs) and  traded  on stock exchanges in London or New York, marking successful assetization into a line of code in a global portfolio. 
 
-Convergence of the 1st or 3rd worlds 
+### Convergence of the 1st or 3rd worlds 
 
 By 2010’s the distinction between  the “ATM” West and the “Informal” 3rd world began to blur into a single global market. 
 The 2008 crash proved the “ATM” was broken. The government did not go back to building social housing; instead they allowed Private Equity Firms like Blackstone to buy up thousands of foreclosed homes . Similarly “De Soto” logic was translated into massive land grabs to build a “Luxury Financial Asset: that often sit empty. It succeeded in making land “legal” but failed to keep it affordable, ensuring that the “unearned increment” ( the rising value of the city) was captured by global investors, marginalizing the  local residents to the peripherals. 
