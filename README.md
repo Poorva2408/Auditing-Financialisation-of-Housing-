@@ -1,5 +1,8 @@
 According to the UN - Habitat Strategic Plan (2026-2029) and the Office of the United Nations High Commissioner for Human Rights (OHCHR), the global landscape of Housing represents a split-chord between legal mandate and basic necessity that must be met to live with dignity.  
-Around 1.12 billion people  (an increase of 130 million since 2015 )live in informal settlements , 300 million considered homeless. Approximately 1.6 billion people face “severe housing affordability constraints”, spending more than 30% of their income on rent/mortgages.
+
+Around 1.12 billion people  (an increase of 130 million since 2015 ) live in informal settlements , 300 million considered homeless. 
+Approximately 1.6 billion people face “severe housing affordability constraints”, spending more than 30% of their income on rent/mortgages.
+
 In light of these statistics, the following essay attempts to audit The 2017 Report on the “Financialization of Housing” , a landmark study presented to the  United Nations Human Rights Council by Leilani Farha, the Special Rapporteur on  adequate housing , that challenged  how the global economy treats residential property. 
 
 ### Right to Housing as a Fundamental Right
