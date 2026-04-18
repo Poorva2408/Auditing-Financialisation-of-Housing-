@@ -83,5 +83,5 @@ The Enforcement Gap : UN has no teeth . Calling housing a "Human Right" in a UN 
 Oversimplification of the “Institutional Investor” : Many "institutional investors" are actually Pension Funds (representing the savings of nurses, teachers, and firefighters). By attacking these investors, the report creates a paradox where the "workers"' retirement savings are the very thing driving the "workers"' housing costs up. The report doesn't solve this "circular" debt problem. 
 
 As highlighted in reports many times, “welfare state” paradigm , today we cannot simply go back to the 
-Mass state-build housing given the debt struck nature of modern states and lack of bureaucratic capacity to build at scale. We need to fully address how to leverage private capital in a way tat remains “humane” while providing adequate and sustainable shelter to millions that support SDG 11. 
+Mass state-build housing given the debt struck nature of modern states and lack of bureaucratic capacity to build at scale. We need to fully address how to leverage private capital in a way that remains “humane” while providing adequate and sustainable shelter to millions that support SDG 11. 
 
